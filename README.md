@@ -1,4 +1,4 @@
-# Hello, World! 🌎 I'm suzy 👋
+# Hello, World! 🌎 I'm 𝓈𝓊𝓏𝓎 ˚.🎀༘⋆
 
 <!--
 **suzckr/suzckr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
